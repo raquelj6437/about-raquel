@@ -1,5 +1,6 @@
 My name is Raquel Joseph.
 My email is raquelj6437@hstat.org
+My school is High School of Telecommunication Arts and Technology (HSTAT)
 
 5 Facts About Me:
 1. Blue is my favorite color
