@@ -6,3 +6,14 @@ My name is Raquel Joseph.
 3. I love elephants
 4. I play soccer
 5. I love to code
+
+My Schedule:
+1. Spanish
+2. SEP
+3. AP US History
+4. AP English
+5. Lunch
+6. Honors Pre-Calc
+7. AP Bio
+8. AP Bio Lab/Study Hall
+9. Varsity G
