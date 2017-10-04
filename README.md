@@ -1,8 +1,8 @@
 My name is Raquel Joseph.
 
 5 Facts About Me:
-1. blue is my favorite color
-2. i am trinidadian
-3. i love elephants
-4. i play soccer
-5. i love to code
+1. Blue is my favorite color
+2. I am trinidadian
+3. I love elephants
+4. I play soccer
+5. I love to code
