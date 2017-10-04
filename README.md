@@ -1,4 +1,5 @@
 My name is Raquel Joseph.
+My email is raquelj6437@hstat.org
 
 5 Facts About Me:
 1. Blue is my favorite color
@@ -16,4 +17,4 @@ My Schedule:
 6. Honors Pre-Calc
 7. AP Bio
 8. AP Bio Lab/Study Hall
-9. Varsity G
+9. Varsity Gym
