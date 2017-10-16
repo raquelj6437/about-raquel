@@ -31,3 +31,5 @@ During the summer, I was able to participate in a program called StartUp Tech Su
 [Freshman Year Portfolio](https://sites.google.com/a/hstat.org/raquelj6437sep09/)  
 [Sophomore Year Portfolio](https://sites.google.com/a/hstat.org/raquelj6437sep10/)  
 [Junior Year Portfolio](https://sites.google.com/a/hstat.org/raquelj6437sep11/)  
+
+_Reviewed by Jessica
